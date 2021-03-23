@@ -1,1 +1,0 @@
-# soutenance_techniques
